@@ -8,3 +8,4 @@
 * @Herculues became an immortal when he was nursed by Zeus' wife, Hera.
 * When Hera found our @Hercules was not her son, she was jealous with rage.
 * Hera sent @Hercules a curse of madness that led him to kill his wife and children.
+* Herculues' name means "the glory of Hera"
